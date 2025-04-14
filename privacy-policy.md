@@ -72,6 +72,6 @@ We may update this Privacy Policy from time to time. We will notify you of any s
 
 ## 10. Contact Us
 
-If you have any questions or concerns about this Privacy Policy or our data handling practices, please contact us at: **[Your Contact Email]**
+If you have any questions or concerns about this Privacy Policy or our data handling practices, please contact us at: **lassos_strider.1@icloud.com**
 
 ---
